@@ -13,3 +13,4 @@ Nothing, it just waved.
 Did you hear about the fire at the circus?
 
 It was in tents!
+A guy goes to his doctor because he can see into the future. The doctor asks him, "How long have you suffered from that condition?" The guy tells him, "Since next Monday."
