@@ -9,3 +9,7 @@ My wife said I was immature. So I told her to get out of my fort.
 What did one ocean say to the other ocean?
 
 Nothing, it just waved.
+
+Did you hear about the fire at the circus?
+
+It was in tents!
