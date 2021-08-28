@@ -5,3 +5,7 @@ This is what Bob & Carol did on Bob’s computer when working on the first featu
 
 My wife said I was immature. So I told her to get out of my fort.
 
+
+What did one ocean say to the other ocean?
+
+Nothing, it just waved.
